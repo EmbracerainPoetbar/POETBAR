@@ -2,31 +2,31 @@
 
 **"**<br>
 *Anh tìm em<br>*
-*Như<br>*
-*Đãi cát tìm vàng<br>*
+*như<br>*
+*đãi cát tìm vàng<br>*
 *Giữa nắng cháy<br>*
-*Đôi mắt em<br>*
-*Rực lửa ,<br>*
+*đôi mắt em<br>*
+*rực lửa ,<br>*
 *<br>*
 *Cho dù em<br>*
-*Không còn<br>*
-*Nơi đó nữa<br>*
+*không còn<br>*
+*nơi đó nữa<br>*
 *Khói bồi hồi<br>*
-*Vẫn<br>*
-*Nghi ngút bao đêm .<br>*
+*vẫn<br>*
+*nghi ngút bao đêm .<br>*
 *<br>*
 *Trời đã muộn<br>*
-*Và anh vẫn muốn thêm<br>*
+*và anh vẫn muốn thêm<br>*
 *Đời ngắn lắm<br>*
-*Giấu tìm em<br>*
-*Chuyến nữa ,<br>*
+*giấu tìm em<br>*
+*chuyến nữa ,<br>*
 *<br>*
 *Đời vô vạ<br>*
-*Chắc là anh<br>*
-*Thối rữa<br>*
+*chắc là anh<br>*
+*thối rữa<br>*
 *Trong vũng lầy<br>*
-*Tên gọi,<br>*
-*‘Nhớ thương em’ .<br>*
+*tên gọi,<br>*
+*‘nhớ thương em’ .<br>*
 **"**<br>
 **Hiên Vũ**
 </div>
